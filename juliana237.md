@@ -1,5 +1,6 @@
 ## Welcome to my world
 - i'm juliana eudoxie
+- computer engineer
 - [Github](https://github.com/juliana237) account
 - [twitter](https://twitter.com/@julianaeudoxie) handle
 - Best picture 
